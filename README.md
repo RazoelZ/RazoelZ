@@ -15,7 +15,7 @@
 I'm open to collaboration on interesting projects. Feel free to reach out!
 
 ### 📫 How to reach me:
-- Email: dany.razoel69@gmail.com
+- Email: danydarmawannn@gmail.com
 - LinkedIn: https://www.linkedin.com/in/danydarmawan/
 
   
